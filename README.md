@@ -176,4 +176,24 @@
 ## Stack Simplify Udemy Profile
 - [Udemy Profile](https://www.udemy.com/user/kalyan-reddy-9/)
 
+## Bonus Lecture 
 
+STEP-1: Connect with Kalyan Reddy on LinkedIn
+
+STEP-2: Share your Course Completion certificate.
+
+Linkedin Hashtag to Follow 
+
+https://linkedin.com/feed/hashtag/stacksimplify
+
+STEP-3: Other Best Selling courses
+
+Please click on the link below to avail the special discount coupons for my other course.
+
+https://www.stacksimplify.com/courses/stacksimplify-best-selling-courses-on-udemy/
+
+STEP-4: Getting Started Free Courses
+
+You can start with out getting started courses for free.
+
+Go our website www.stacksimplify.com and click on Free courses
